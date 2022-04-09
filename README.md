@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gudalupenavarro
-- 👀 I’m interested in learn new skills
+- 👀 I’m interested in learning new skills
 - 🌱 I’m currently learning diferentes lenguajes 
 - 💞️ I’m looking to collaborate on a new functional project
 - 📫 How to reach me guadaupennavarro04@gmail.com
